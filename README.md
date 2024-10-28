@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **anurags0047@gmail.com**
 
-- 📄 Here's my resume [My Resume](https://drive.google.com/file/d/14yrHI6DvbUUrMNO1aH9EPqT7QMn8hnc2/view?usp=sharing)
+- 📄 Here's my resume [My Resume](https://drive.google.com/file/d/12xdYMU5htU7ClHuxRo9r8S-r9woc8-CB/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
